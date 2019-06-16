@@ -2,4 +2,4 @@
 
 ## specialized in data protection, storage and global operations.
 
-[My resume](link tbd)
+[My resume](Jerry Landwehr Resume.pdf)
